@@ -1,8 +1,10 @@
 # Bruno Rangel Zuñiga
-Me gusta estas cosas
+Me gustan estas cosas:
 * Las pizzas 🍕
 * Los videojuegos 🎮
 * Los gatos 🐈‍⬛
 * Dormir 🛏️
 
-**Espero terminar bien mis estudios en sistemas computacionales**
+Soy estudiante de Ing. en Sistemas Computacionales y Ing. en Telecomunicaciones y sistemas Electronicos
+
+**Espero terminar bien mis estudios en Sistemas Computacionales y en Telecomunicaciones**
