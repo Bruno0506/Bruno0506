@@ -5,6 +5,6 @@ Me gustan estas cosas:
 * Los gatos 🐈‍⬛
 * Dormir 🛏️
 
-Soy estudiante de Ing. en Sistemas Computacionales y Ing. en Telecomunicaciones y sistemas Electronicos
+Soy Ing. en Sistemas Computacionales y estudiante en Ing. en Telecomunicaciones y Sistemas Electronicos
 
-**Espero terminar bien mis estudios en Sistemas Computacionales y en Telecomunicaciones**
+**Espero conocer a CR7 SIIIUUUUUUUUUU**
